@@ -6,5 +6,4 @@
 - 😄 Pronouns: ?
 - ⚡ Fun fact: I do not have:)
 
-My telegram: HAMXIMCRL
 
